@@ -1,5 +1,5 @@
 ## BEFORE YOU INT
 
-## I have bad grammar because English is NOT my first language so please forgive me. Don't be shy to int or befriend with me i dont bite promise i heh. 
+## I have bad grammar because English is NOT my first language so please forgive me. Don't be shy to int or befriend with me i dont bite promise i heh. You can call me Ren 
 
 ![Hi](8333cc4627238bdeb2923d44ad792f36.jpg) 
